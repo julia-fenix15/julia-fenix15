@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @julia-fenix15
+- 👋 Hi, I’m juh
 - 👀 I’m interested in playing bass
 - 🌱 I’m currently learning idk
 - 💞️ I’m looking to collaborate on me and myself
